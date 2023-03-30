@@ -1,2 +1,0 @@
-# proyectodemocurso
-# proyectodemocurso
